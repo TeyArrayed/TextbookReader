@@ -11,3 +11,5 @@ I, being a person with a very short attention span have decided to create a wond
    -Keep application in focus at all times
 
 First Personal Project! Locked in! This surely means I'll be doing so many in the near future :3
+
+Started 14th September, 2026
